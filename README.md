@@ -37,7 +37,7 @@
 ---
 
 ## 🚀 **Let's Connect**  
-📧 **Email**: senudinubro@gmail.com *(senudinubro@gmail.com)*  
-🌐 [LinkedIn](https://linkedin.com/in/senuka-dinuwara) *(Insert your profile link)*  
+📧 **Email**: senudinubro@gmail.com
+🌐 [LinkedIn](https://linkedin.com/in/senuka-dinuwara)  
 
 Let’s collaborate to create, innovate, and learn! 🌍  
